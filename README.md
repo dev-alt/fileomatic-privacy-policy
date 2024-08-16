@@ -1,6 +1,6 @@
 # Privacy Policy for Fileomatic Suite
 
-Last updated: [Current Date]
+Last updated: 16/08/2024
 
 ## Introduction
 
